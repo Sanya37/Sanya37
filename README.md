@@ -1,4 +1,6 @@
 
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=%2336BCF7&lines=Привеееееееееееееееееееетики!)](https://git.io/typing-svg)
+
 ![pudge-dance](https://github.com/user-attachments/assets/172594b9-0a6d-4177-97b9-6e1e11300a66)
 ---
 ---
