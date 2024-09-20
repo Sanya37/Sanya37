@@ -8,3 +8,5 @@
 ##
 
 [![GitHub Streak](http://github-readme-streak-stats.herokuapp.com?user=Sanya37&theme=dark&background=000000)](https://git.io/streak-stats)
+
+![71EKWVDvH9s](https://github.com/user-attachments/assets/408169a6-89bc-4a94-92eb-13c691275fa3)
